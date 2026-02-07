@@ -1,3 +1,3 @@
 # starryblog.github.io
 
-
+Hello World! Welcome to my blog- a collection of personally hand-made artworks and articles under the collection "Letters to a silent voice". Through this blog, I aim to raise awareness regarding topics and themes from the past that we often overlook, getting lost in the busy digital lives of today. With social media all around, it is close to impossible to rationalise a normal for yourself, let alone acknowledge what was accepted as normal for the geneerations before us. Over here, everyone is welcome, no matter their gender, appearence, nationality- or all the other factors people are alienated because of. This blog is a voice for everyone, and, a letter to those whose voices have fell silent. 
